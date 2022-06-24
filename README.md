@@ -1,2 +1,2 @@
 # nitesh9939.github.io
-hello world
+Hello, I am looking for exploring the world.
